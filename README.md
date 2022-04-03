@@ -5,7 +5,6 @@
 
 
 #### Связь
-- 📱 Фоточки [инсте](https://instagram.com/mutvedeva)
 - [Телега](https://t.me/elnadra) для связи и прям в крайнем случае [ВК](https://vk.com/elnadra)
 - *Cамая токсичная сеть или же [Твиттер](https://twitter.com/@mutved1)*
 
